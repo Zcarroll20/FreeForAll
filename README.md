@@ -10,7 +10,7 @@
 * Banana Bread
 * Banana Water
 * Banana Split
-* [Banana_Pound_Cake](https://www.tasteofhome.com/recipes/banana-pound-cake/)
+* [Banana Pound Cake](https://www.tasteofhome.com/recipes/banana-pound-cake/)
 * Banana Blueberry Baked Pancake
 * Banana Smoothie
 

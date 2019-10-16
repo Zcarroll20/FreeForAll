@@ -5,3 +5,7 @@
 1. You can eat them or put them in food.
 2. You can keep one as a pet. It wont lasty long but you can.
 3. You can defend your family with them.
+
+## Recipes for Bananas
+* Banana Bread
+* Banana Water

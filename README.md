@@ -9,7 +9,7 @@
 ## Recipes for Bananas
 * Banana Bread
 * Banana Water
-* Banana Split
+* [Banana Split](https://www.tasteofhome.com/recipes/all-american-banana-split/)
 * [Banana Pound Cake](https://www.tasteofhome.com/recipes/banana-pound-cake/)
 * Banana Blueberry Baked Pancake
 * Banana Smoothie

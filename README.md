@@ -9,3 +9,9 @@
 ## Recipes for Bananas
 * Banana Bread
 * Banana Water
+* Banana Split
+* Banana Pound Cake
+* Banana Blueberry Baked Pancake
+* Banana Smoothie
+
+##

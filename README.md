@@ -11,7 +11,7 @@
 * [Banana Water](https://www.allrecipes.com/video/9189/gam-gams-hot-banana-water/?internalSource=picture_play&referringId=270779&referringContentType=Recipe)
 * [Banana Split](https://www.tasteofhome.com/recipes/all-american-banana-split/)
 * [Banana Pound Cake](https://www.tasteofhome.com/recipes/banana-pound-cake/)
-* Banana Blueberry Baked Pancake
-* Banana Smoothie
+* [Banana Blueberry Baked Pancake](https://www.crazyforcrust.com/banana-blueberry-baked-pancake/)
+* [Banana Smoothie](https://www.inspiredtaste.net/19907/simple-banana-smoothie-recipe/)
 
 ## 

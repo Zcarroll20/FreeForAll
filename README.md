@@ -3,7 +3,7 @@
 
 ## :monkey_face::banana: Uses for Bananas:banana::monkey_face:
 1. You can eat them or put them in food.
-2. You can keep one as a pet. It wont lasty long but you can.
+2. You can keep one as a pet. It wont last long but you can.
 3. You can defend your family with them.
 
 ## :monkey_face::banana:Recipes for Bananas:banana::monkey_face:
@@ -12,7 +12,7 @@
 * [Banana Split](https://www.tasteofhome.com/recipes/all-american-banana-split/):ice_cream:
 * [Banana Pound Cake](https://www.tasteofhome.com/recipes/banana-pound-cake/):cake:
 * [Banana Blueberry Baked Pancake](https://www.crazyforcrust.com/banana-blueberry-baked-pancake/)	:pancakes:
-* [Banana Smoothie](https://www.inspiredtaste.net/19907/simple-banana-smoothie-recipe/):tropical_drink
+* [Banana Smoothie](https://www.inspiredtaste.net/19907/simple-banana-smoothie-recipe/):tropical_drink:
 
 ## :monkey_face::banana:What Bananas do for Your Body:banana::monkey_face:
 ![Buff banana](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTc3ioAXe0yYci6siqfIQN2g8-sBYApqjKt8XyTQygh4yGEyJmt) 

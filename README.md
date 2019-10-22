@@ -20,7 +20,7 @@
  Bananas reduce swelling, protect you agist Type 2 Diabettes, help you lose weight, strenthens your
 nervous system, and speeds up the production of white blood cells, this is because of the high amount of vitamin B6 that bananas have. The healthy living website *Healthline* says that,"Unripe bananas are a great source of resistant starch. Therefore, they may help improve insulin sensitivity." 
  
- ## :monkey_face::banana:Fun Banana Facts:banana::monkey_face:
+ ## :monkey_face::banana:Fun Banana Facts
 
  * The scientific name for the banana is  **musa sapientum**.
  * As of current day Hawaii is the only place where bananas are grown for commercial use.
@@ -28,3 +28,11 @@ nervous system, and speeds up the production of white blood cells, this is becau
  * Bananas  where dipicted in anchent Egyptian hieroglyphs.
  * About half of all people who are allergic to latex are often also allergic to bananas.
  ![Stack of Bananas](https://thebananapolice.com/wp-content/uploads/2012/12/bananas-close-up.jpg)
+
+ ## :monkey_face::banana Cool Pictures of Bananas:banana::monkey_face:
+![Orange Banana](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTR4lGE1KkKe-hnsDqCQXvV4dvnJgqe7ZlpC9N1g0AFOcByzpE2oQ)
+![Banana corner](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSfVNzPfLp2Hiqlu_6lFV7ByvGrtwy_uuCUQjKm3cGasf8bDQQpNA) 
+![Banana wig](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQr53x6jFZZRkGU4Z0Qj68Sxrb4f8ceG-wJ4i2z_WZZlT7vvQZuZQ)
+![Duck Banana](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSGv22bajn18LrFuC77a0V7hnNRj-3ILFsu2_e9Xvi_SwtSltye)
+![Sad Street Banana](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSvxdNlZiyKbpeTVG-Iyu324jsFuybIA9em--40yGrUzPA4d67Dzw)
+![The Mask: Banana Edition](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSJwzYrdrPmtLq5vukEKlmPd7lzQUrpSxogHIGTOhc2-AtG1Tzm2A)

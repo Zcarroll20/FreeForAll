@@ -17,5 +17,14 @@
 ## What Bananas do for Your Body
 ![Buff banana](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTc3ioAXe0yYci6siqfIQN2g8-sBYApqjKt8XyTQygh4yGEyJmt) 
 
- Bananas reduce swelling, Protect you agist Type 2 Diabettes, help you lose weight, strenthens your
-nervous system, and speeds up the production of white blood cells, this is because of the high amount of vitamin B6 that bananas have. The healthy living website *Healthline* says that,"Unripe bananas are a great source of resistant starch. Therefore, they may help improve insulin sensitivity."
+ Bananas reduce swelling, protect you agist Type 2 Diabettes, help you lose weight, strenthens your
+nervous system, and speeds up the production of white blood cells, this is because of the high amount of vitamin B6 that bananas have. The healthy living website *Healthline* says that,"Unripe bananas are a great source of resistant starch. Therefore, they may help improve insulin sensitivity." 
+ 
+ ## Fun Banana Facts
+
+ * The scientific name for the banana is  **musa sapientum**.
+ * As of current day Hawaii is the only place where bananas are grown for commercial use.
+ * Bananas dont grow on trees they grow from a plant thats classified as a **herb**.
+ * Bananas  where dipicted in anchent Egyptian hieroglyphs.
+ * About half of all people who are allergic to latex are often also allergic to bananas.
+ ![Stack of Bananas](https://thebananapolice.com/wp-content/uploads/2012/12/bananas-close-up.jpg)

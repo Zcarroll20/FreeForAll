@@ -7,12 +7,12 @@
 3. You can defend your family with them.
 
 ## :monkey_face::banana:Recipes for Bananas:banana::monkey_face:
-* [Banana Bread](https://www.allrecipes.com/recipe/20144/banana-banana-bread/)
-* [Banana Water](https://www.allrecipes.com/video/9189/gam-gams-hot-banana-water/?internalSource=picture_play&referringId=270779&referringContentType=Recipe)
-* [Banana Split](https://www.tasteofhome.com/recipes/all-american-banana-split/)
-* [Banana Pound Cake](https://www.tasteofhome.com/recipes/banana-pound-cake/)
-* [Banana Blueberry Baked Pancake](https://www.crazyforcrust.com/banana-blueberry-baked-pancake/)
-* [Banana Smoothie](https://www.inspiredtaste.net/19907/simple-banana-smoothie-recipe/)
+* [Banana Bread](https://www.allrecipes.com/recipe/20144/banana-banana-bread/):bread:
+* [Banana Water](https://www.allrecipes.com/video/9189/gam-gams-hot-banana-water/?internalSource=picture_play&referringId=270779&referringContentType=Recipe):tumbler_glass:
+* [Banana Split](https://www.tasteofhome.com/recipes/all-american-banana-split/):ice_cream:
+* [Banana Pound Cake](https://www.tasteofhome.com/recipes/banana-pound-cake/):cake:
+* [Banana Blueberry Baked Pancake](https://www.crazyforcrust.com/banana-blueberry-baked-pancake/)	:pancakes:
+* [Banana Smoothie](https://www.inspiredtaste.net/19907/simple-banana-smoothie-recipe/):tropical_drink
 
 ## :monkey_face::banana:What Bananas do for Your Body:banana::monkey_face:
 ![Buff banana](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTc3ioAXe0yYci6siqfIQN2g8-sBYApqjKt8XyTQygh4yGEyJmt) 

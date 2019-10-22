@@ -17,5 +17,5 @@
 ## What Bananas do for Your Body
 ![Buff banana](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTc3ioAXe0yYci6siqfIQN2g8-sBYApqjKt8XyTQygh4yGEyJmt) 
 
- Bananas reduce swelling, Protect you agist Type  Diabettes, help you lose weight, strenthens your
+ Bananas reduce swelling, Protect you agist Type 2 Diabettes, help you lose weight, strenthens your
 nervous system, and speeds up the production of white blood cells, this is because of the high amount of vitamin B6 that bananas have. The healthy living website *Healthline* says that,"Unripe bananas are a great source of resistant starch. Therefore, they may help improve insulin sensitivity."

@@ -48,3 +48,11 @@ nervous system, and speeds up the production of white blood cells, this is becau
 ![Banana Man](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRPe4GTPPP9s-N21NSnGW0y_Iz4J9q2fLZuqtEbhP7aGZlPCrzIQg&s)
 
 :eye::lips::eye:
+
+:eye::tongue::eye: 
+
+:eyes:
+
+:nose:
+
+:tongue:

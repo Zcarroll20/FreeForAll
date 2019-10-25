@@ -51,8 +51,8 @@ nervous system, and speeds up the production of white blood cells, this is becau
 
 :eye::tongue::eye: 
 
-:eyes:
+> :eyes: <
 
-:nose:
+> :nose: <
 
-:tongue:
+> :tongue: <

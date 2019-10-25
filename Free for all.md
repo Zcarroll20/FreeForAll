@@ -21,10 +21,10 @@
 nervous system, and speeds up the production of white blood cells, this is because of the high amount of vitamin B6 that bananas have. The healthy living website *Healthline* says that,"Unripe bananas are a great source of resistant starch. Therefore, they may help improve insulin sensitivity." 
 
 ## WHat do Bananas Mean to You?
-"Breakfast"- Andy Than
-"They're a fruit"- Kiersten Albert
-"Enjoy an occasional banana"- Marcelo Correia
-"0/10, not enough calcium"- Stephon
+> "Breakfast"- Andy Than
+> "They're a fruit"- Kiersten Albert
+> "Enjoy an occasional banana"- Marcelo Correia
+> "0/10, not enough calcium"- Stephon
 
  ## :monkey_face::banana: Fun Banana Facts :banana::monkey_face:
 

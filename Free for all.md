@@ -20,7 +20,7 @@
  Bananas reduce swelling, protect you agist Type 2 Diabettes, help you lose weight, strenthens your
 nervous system, and speeds up the production of white blood cells, this is because of the high amount of vitamin B6 that bananas have. The healthy living website *Healthline* says that,"Unripe bananas are a great source of resistant starch. Therefore, they may help improve insulin sensitivity." 
 
-## WHat do Bananas Mean to You?
+## What do Bananas Mean to You?
 "Breakfast"- Andy Than
 
 "They're a fruit"- Kiersten Albert
@@ -46,3 +46,4 @@ nervous system, and speeds up the production of white blood cells, this is becau
 ![Sad Street Banana](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSvxdNlZiyKbpeTVG-Iyu324jsFuybIA9em--40yGrUzPA4d67Dzw)
 ![The Mask: Banana Edition](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSJwzYrdrPmtLq5vukEKlmPd7lzQUrpSxogHIGTOhc2-AtG1Tzm2A)
 ![Banana Man](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRPe4GTPPP9s-N21NSnGW0y_Iz4J9q2fLZuqtEbhP7aGZlPCrzIQg&s)
+:eye::lips::eye:

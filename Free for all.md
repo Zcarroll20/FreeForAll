@@ -25,7 +25,7 @@ nervous system, and speeds up the production of white blood cells, this is becau
 
 "They're a fruit"- Kiersten Albert
 
-"Enjoy an occasional banana"- Marcelo Correia
+"I enjoy an occasional banana"- Marcelo Correia
 
 "0/10, not enough calcium"- Stephon
 

@@ -46,17 +46,3 @@ nervous system, and speeds up the production of white blood cells, this is becau
 ![Sad Street Banana](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSvxdNlZiyKbpeTVG-Iyu324jsFuybIA9em--40yGrUzPA4d67Dzw)
 ![The Mask: Banana Edition](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSJwzYrdrPmtLq5vukEKlmPd7lzQUrpSxogHIGTOhc2-AtG1Tzm2A)
 ![Banana Man](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRPe4GTPPP9s-N21NSnGW0y_Iz4J9q2fLZuqtEbhP7aGZlPCrzIQg&s)
-
-:eye::lips::eye:
-
-:eye::tongue::eye: 
-
-:eye::pig_nose::eye:	
-
-:eye::chestnut::eye:
-
-:eye::banana::eye:
-
-:eye:	:rice_cracker::eye:
-
-	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:	:rice_cracker:
